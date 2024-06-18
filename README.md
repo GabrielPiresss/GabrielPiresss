@@ -11,7 +11,7 @@ BEM VINDO AO MEU PERFIL🙌👋
 
 00001087730168sp@al.educacao.sp.gov.br
 
-![](https://media1.tenor.com/m/ukkY9a6JGOgAAAAd/rowan-atkinson-rowan.gif)
+![](https://media1.tenor.com/m/ukkY9a6JGOgAAAAd/rowan-atkinson-rowan.gif) 
 
 
 
